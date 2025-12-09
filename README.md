@@ -15,8 +15,7 @@ Email: mr.zartashlegend@gmail.com
 
 WhatsApp: +92 309 6349577
 
-LinkedIn: (Add your link here)
-
+LinkedIn: https://www.linkedin.com/in/zartash-ali
 Pronouns: He/Him
 
 Fun fact: I enjoy experimenting with SEO tools, testing ranking strategies, and discovering new ways to boost search performance!
